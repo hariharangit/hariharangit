@@ -9,10 +9,10 @@
 
 ## Currently I'm 
 - A noob to technical world 
-- A student in SRM Cybersecurity
+- A student in SRM Cybersecurity💻
 - Interested in Cybersecurity and Web Development
 - Currently learning them (👆)from scratch 
-- Nothing much 
-- If anyone needs to connect with me dm me on insta (waste_of_time_bruh)
+- Nothing much 🙂
+- If anyone needs to connect with me dm me on insta (waste_of_time_bruh)👀
 - Peace ✌ 
  
