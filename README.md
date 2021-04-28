@@ -13,6 +13,6 @@
 - Interested in Cybersecurity and Web Development
 - Currently learning them (👆)from scratch 
 - Nothing much 🙂
-- If anyone needs to connect with me dm me on insta (waste_of_time_bruh)👀
+- If anyone needs to connect with me dm me on nowhere👀
 - Peace ✌ 
  
