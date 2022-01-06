@@ -13,6 +13,5 @@
 - Interested in Cybersecurity and Web Development
 - Currently learning them (👆)
 - Nothing much 🙂
-- If anyone needs to connect with me dm me on nowhere👀
 - Peace ✌ 
  
